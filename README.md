@@ -2,3 +2,4 @@
 continuing to practice
 I live in CA and love learning new concepts. 
 I have two kids and enjoy cooking and traveling.
+My favorite food is french fries
